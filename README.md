@@ -1,1 +1,1 @@
-# FinWise-Your-Personal-Tax-Benefits-Assistant-Simplified.-
+# FinWise-Your-Personal-Tax-Benefits-Assistant-Simplified
